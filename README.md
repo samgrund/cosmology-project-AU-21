@@ -1,1 +1,1 @@
-# Cosmolgy project AU 21
+# Cosmology project AU 21
